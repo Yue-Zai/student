@@ -1,2 +1,0 @@
-# student
-for city college
